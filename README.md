@@ -4,13 +4,17 @@
 
 In the era of digital content, businesses, educators, and creators are constantly seeking innovative ways to engage their audiences. One of the most transformative tools in this space is **Play.ht AI**, a cutting-edge **text-to-speech (TTS) platform** that converts written text into lifelike audio. 
 
-# ✅ **"[Get your exclusive coupon code today](https://www.play.ht/?via=90off)!"**  👇
+# ✅ **"[Get your exclusive coupon code today](https://www.play.ht/?via=90off)!"**  👇👇👇
 
 [![Discount button](https://github.com/user-attachments/assets/d84d81bf-3162-482e-9e2e-e24303a0283e)](https://www.play.ht/?via=90off)
 
-# ✅ **"[Get your exclusive coupon code today](https://www.play.ht/?via=90off)!"**   👆
+# ✅ **"[Get your exclusive coupon code today](https://www.play.ht/?via=90off)!"**   👆👆👆
 
 With **900+ AI voices**, multilingual support, and advanced customization, Play.ht is revolutionizing **voiceovers, audiobooks, podcasts, e-learning, and marketing content**. This comprehensive guide explores everything you need to know about Play.ht AI—its **features, benefits, pricing, use cases, and how it compares to competitors**
+
+<a href="https://www.play.ht/?via=90off">
+  <img src="https://github.com/user-attachments/assets/b9eb4d08-74cb-4b32-8a87-91394ac31fe6" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
+</a>
 
 ## **What is Play.ht AI?**  
 
